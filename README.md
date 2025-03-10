@@ -11,25 +11,34 @@ Thank to **this link** : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2, **just copy and p
 
 ### **Steps to sign up:**
 
-1️⃣ **[Acess to the promotional link above]( https://github.com/eleckang/promocandyai)** and connect you or create an account.  
-2️⃣ Select your model.  
+1️⃣ **[Acess to the promotional link above]( https://github.com/eleckang/promocandyai)** and connect you or create an account.
+
+2️⃣ Select your model.
+
 3️⃣ Enjoy,**your new submissive girlfriend**
+
 
 ### **Whats makes DreamGirlfriend unique ?**
 
-🔹 No payment required to use it – Unlike fake links available elsewhere on the internet, **Use this one without the space: dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2**  
-🔹 It's free – You only pay if you want to take the relationship further.  
-🔹 Easy to use – you only need to follow the link above. 
+🔹 No payment required to use it – Unlike fake links available elsewhere on the internet, **Use this one without the space: dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2**
+
+🔹 It's free – You only pay if you want to take the relationship further.
+
+🔹 Easy to use – you only need to follow the link above.
 ---
 
 ## **Why use Dreamgirlfriend NSFW ?**
 
 Dream Girlfriend is more than just a game. It allows you to:
 
-✅ **Create your ideal girlfriend,** with customized characteristics and appearances.
-✅ **Interact with your girlfriend in a realistic way,**thanks to advanced artificial intelligence,
-✅ **Discover new experiences and unique fantasies,**
+✅ **Create your ideal girlfriend** with customized characteristics and appearances,
+
+✅ **Interact with your girlfriend in a realistic way** thanks to advanced artificial intelligence,
+
+✅ **Discover new experiences and unique fantasies**
+
 ✅ **Maximise your pleasure** With regular updates and new content.
+
 ---
 ## *Why benefit from the link now?**
 
