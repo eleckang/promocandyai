@@ -3,7 +3,7 @@
 ## **Introduction**
 Dream Girlfriend is the ultimate tool for creating your ideal and customized companion, thanks to artificial intelligence. Whether you're **a gamer, a collector, or simply someone who enjoys unique and immersive experiences,** you need a powerful tool to produce realistic and engaging interactions with your personalized companion. But did you know that **using the tool is free for a limited time?**
 
-Thank to **this link** : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2, **just copy and past in the website adress and delete the space**. you'll benefit **of free access to benefit from it.** This guide will explain **How to activate it easily and why it's a unique opportunity!**.
+Thank to **this link** : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2, **just copy and past in the website adress and delete the space in the adress**. you'll benefit **of free access to benefit from it.** This guide will explain **How to activate it easily and why it's a unique opportunity!**.
 
 ---
 
@@ -11,7 +11,7 @@ Thank to **this link** : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2, **just copy and p
 
 ### **Steps to sign up:**
 
-1️⃣ **[Access to the promotional link] at the end of the phrase, and delete the space (https://github.com/eleckang/promocandyai)** and connect you or create an account : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2
+1️⃣ **[Access to the promotional link](https://github.com/eleckang/promocandyai)** and connect you or create an account, **don't forget to delete the space in the adress** : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2
 
 2️⃣ Select your model.
 
