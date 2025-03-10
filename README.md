@@ -11,7 +11,7 @@ Thank to **this link** : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2, **just copy and p
 
 ### **Steps to sign up:**
 
-1️⃣ **[Access to the promotional link at the end of the phrase, delete the space]( https://github.com/eleckang/promocandyai)** and connect you or create an account : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2
+1️⃣ **[Access to the promotional link] at the end of the phrase, and delete the space (https://github.com/eleckang/promocandyai)** and connect you or create an account : dreamgf. ai/ai-porn?a=Xz0usNHpzbEFh2
 
 2️⃣ Select your model.
 
